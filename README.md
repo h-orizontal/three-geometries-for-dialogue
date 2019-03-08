@@ -1,5 +1,5 @@
 # Three geometries for dialogue
-![cajitas](Images/todas_ing.png)
+![cajitas](Images/todas_ing.jpg)
 
 These are three pedagogical tools that work as a support for psychosocial processes and exercises, as well as mediators in the participatory construction of a restorative justice space. These devices want to be translators of the life testimonies, feelings and circumstances that made the conflict or felony happen and transform them into communication exercises that bring facts closer and make them tangible, that foster dialogue and a mutual understanding of agreements and reparation.
 
